@@ -1,2 +1,1 @@
-<h2 style="text-align: center;">dont mean to bug but i thought id tell you that your shoes are untied. . .</h2>
-
+<p align="center"><img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/midzel.jpg"></p>
