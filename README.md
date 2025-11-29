@@ -8,7 +8,7 @@
 
 <p align="center">
 <a href="https://falsettos.atabook.org/">atabook</a> ; <a href="https://ocarinaoftime.neocities.org/">neocities</a>
-  <br><i>(these are constantly out of date Sorry)</i>
+  <br><i>(these are constantly out of date</i>Sorry<i>)</i>
 </p>
 
 <hr>
