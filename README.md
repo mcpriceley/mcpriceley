@@ -16,7 +16,6 @@
 <p align="center">
 <img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/neocities/wrightworth/3dsstamp.gifv">
 <img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/neocities/wrightworth/tlstamp.png">
-<img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/neocities/wrightworth/tgstamp.png">
 <img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/neocities/wrightworth/myfstamp.jpg">
 <img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/neocities/wrightworth/taketahtstamp.jpg">
 </p>
