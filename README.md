@@ -35,7 +35,6 @@
 <p align=center>im offtab 99% of the time,, feel free to send me a whisper if<br>you wanna talk!! im usually up for a chat :D</p>
 <p align=center>c+h, copy/inspo = GO FOR IT!! ive spent too many hours in this<br>game to be bothered about these LMAO</p>
 <p align=center>also i cant believe i have 2 say this but dontttt interact if<br>youre proship/darkship we will not get along Thanku</p>
-<hr>
 
 <br>
 <p align=center>
