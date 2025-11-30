@@ -1,3 +1,7 @@
+<p align="center"><i>"  whenever  you  get  that view - master  feeling ,  and  you  feel  stuck  between  the  slides . . .  remember ,  you ' re  not  alone .  crazy  together .  "</i></p>
+
+<br>
+
 <img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/neocities/wrightworth/mayanod.gif" width=40% align=right>
 
 <p align="center">bylers read peak <a href="https://byler-archive.neocities.org/going-live">here</a></p>
