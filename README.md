@@ -28,7 +28,7 @@
 
 <br>
 <h4 align=center>interests</h4>
-<p align=center>my main interests at the moment are stranger things, dan and phil,<br> & ace attorney <i>!!</i> (I JUST STARTED T&T donttt spoil anything i beg)</p>
+<p align=center>my main interests at the moment are sfth, dan and phil,<br> & <b>ace attorney</b> <i>!!</i> (ive only played the pw trilogy & aa4 so far. . donttt spoil anything i beg)</p>
 <p align=center>other things i like are tloz (sksw, tp manga, lahd, botw, lu. . im currently<br>playing oot !), musicals (falsettos, tbom, cabaret), & poofesure yay</p>
 <p align=center><img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/true.png" width=45%></p>
 
