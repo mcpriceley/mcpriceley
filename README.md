@@ -11,7 +11,7 @@
 <p align="center">helloo im cat and i mostly play pony town <br> to make cute ponies of characters i like ^_^</p>
 
 <p align="center">
-<a href="https://falsettos.atabook.org/">atabook</a> ; <a href="https://ocarinaoftime.neocities.org/">neocities</a>
+<a href="https://lanamia.atabook.org/">atabook</a> ; <a href="https://ocarinaoftime.neocities.org/">neocities</a>
   <br><i>(these are constantly out of date</i>Sorry<i>)</i>
 </p>
 
