@@ -1,17 +1,15 @@
-<p align="center"><i>"  whenever  you  get  that view - master  feeling ,  and  you  feel  stuck  between  the  slides . . .  remember ,  you ' re  not  alone .  crazy  together .  "</i></p>
-
 <br>
 
 <img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/neocities/wrightworth/mayanod.gif" width=40% align=right>
 
-<p align="center">bylers read peak <a href="https://byler-archive.neocities.org/going-live">here</a></p>
+<p align="center">do your daily clicks : <a href="https://arab.org/">arab.org</a></p>
 
 <hr>
 
 <p align="center">helloo im cat and i mostly play pony town <br> to make cute ponies of characters i like ^_^</p>
 
 <p align="center">
-<a href="https://lanamia.atabook.org/">atabook</a> ; <a href="https://ocarinaoftime.neocities.org/">neocities</a>
+<a href="https://lanamia.atabook.org/">atabook</a> ; <a href="https://nrmt.straw.page/">straw</a>
   <br><i>(these are constantly out of date</i>Sorry<i>)</i>
 </p>
 
@@ -30,7 +28,12 @@
 <h4 align=center>interests</h4>
 <p align=center>my main interests at the moment are sfth, dan and phil,<br> & <b>ace attorney</b> <i>!!</i> (ive only played the pw trilogy & aa4 so far. .<br>donttt spoil anything i beg)</p>
 <p align=center>other things i like are tloz (sksw, tp manga, lahd, botw, lu. . im currently<br>playing oot !), musicals (falsettos, tbom, cabaret), & poofesure yay</p>
-<p align=center><img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/true.png" width=45%></p>
+<p align="center">
+<img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/graphics/stamps/aa/skyesisters.png">
+<img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/graphics/stamps/aa/emadetecting.gif">
+<img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/graphics/stamps/aa/trucyfan.png">
+<img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/graphics/stamps/aa/rookiemia.jpg">
+</p>
 
 <img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/mayatalk.gif" width=40% align=right>
 
@@ -42,5 +45,5 @@
 
 <br>
 <p align=center>
-<img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/wellyeah.png" width=75%>
+<img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/bleh.gif" width=75%>
 </p>
