@@ -45,5 +45,5 @@
 
 <br>
 <p align=center>
-<img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/bleh.gif" width=75%>
+<img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/bleh.gif">
 </p>
