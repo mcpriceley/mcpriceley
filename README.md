@@ -47,3 +47,7 @@
 <p align=center>
 <img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/bleh.gif">
 </p>
+
+<p align=center>
+<sub>you can view the code i used <a href="https://rentry.co/mcpriceleying">here</a> !</sub>
+</p>
