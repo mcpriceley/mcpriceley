@@ -26,7 +26,7 @@
 
 <br>
 <h4 align=center>interests</h4>
-<p align=center>my main interests at the moment are tshd, dan and phil,<br> & <b>ace attorney</b> <i>!!</i> (ive played the pw trilogy, aa4, & the aai<br>duology!! i recently started aa5 too yayyyy ,, donttt spoil anything i beg)</p>
+<p align=center>my main interests at the moment are tshd, dan and phil,<br> & <b>ace attorney</b> <i>!!</i> (ive played the pw trilogy, aa4, & the aai duology!!<br>i recently started aa5 too yayyyy ,, donttt spoil anything i beg)</p>
 <p align=center>other things i like are tloz (sksw, tp manga, lahd, botw, lu. . im currently<br>playing <strike>oot</strike> alttp !), musicals (falsettos, tbom, cabaret), & poofesure yay</p>
 <p align="center">
 <img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/graphics/stamps/aa/skyesisters.png">
