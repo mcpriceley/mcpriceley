@@ -35,7 +35,7 @@
 <img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/graphics/stamps/aa/rookiemia.jpg">
 </p>
 
-<img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/mayatalk.gif" width=40% align=right>
+<img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/trucytalk.gif" width=40% align=right>
 
 <br>
 <h4 align=center>pony town</h4>
